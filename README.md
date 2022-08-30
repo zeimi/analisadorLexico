@@ -4,5 +4,6 @@
 <h3 align="center">Analisador Léxico:</h3>
   
 1. Em andamento...
+Calvaram meu portifólio
 
 <h3 align="center">Aviso: sem aviso ainda.</h3>
