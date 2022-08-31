@@ -8,6 +8,7 @@ Calvaram meu portifólio
 
 <h3 align="center">Aviso: sem aviso ainda.</h3>
 
+![__siegmeyer_of_catarina_patches_and_iron_fist_alexander_elden_ring_and_1_more_drawn_by_goldendogaki__5c6a1fb4595e4b55b8398780d8a51343](https://user-images.githubusercontent.com/93962428/187572509-e9fba0d5-16d4-4df3-aac1-e95b569c2bb3.gif)
 
 https://user-images.githubusercontent.com/94016306/187559437-a589fb96-e867-493f-8f47-27e9cdccdf57.mp4
 
